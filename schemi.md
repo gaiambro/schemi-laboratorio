@@ -18,4 +18,11 @@ il bancone  disordinato  crea  senso di trascuratezza e poco impegno.  Il negozi
 si trasmette con la 
 - cortesia
 - gentilezza
+
 comeil  saluto e chiamarlo per nome o cognome, buona parte dell'accogliena fa parte di quello che viene identificato come servizio; gli aspetti tecnici del lavoro ne costituiscono la parte professionale, il **servizio e l'insieme delle sue azioni**. 
+la prima regola per una buona accoglienza è quindi semplice  e consist  nel **mostrare un sincero interesse verso gli altri**.
+
+##  le regole per una buona accogl
+1.  coinvolgimento personale 
+un'atteggiamento freddo e distaccato, non riservatezza,  limitando il dialogo e l'accompagnamento verso le postazioni di lavoro e concordando molto velocemente il lavoro da eseguire. a fine trattamento  affrettarsi a presentare  la ricevuta e controllare lo stato di soddisfazione del lavoro. 
+2.  competenza relazionale 
